@@ -1,0 +1,1 @@
+"Onde você foca, expande" Por isso devemos centrar nossa atenção e energia para o que realmente queremos para a nossa vida.
